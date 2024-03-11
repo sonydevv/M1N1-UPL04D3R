@@ -1,5 +1,5 @@
-AUTHOR : SonySec07
-INSTAGRAM : SonySec07
-WHATSAPP : +234 704 345 7087
-YOUTUBE : sonymodderr
-EMAIL : mrsn9000@gmail.com
+AUTHOR : SonySec07, 
+INSTAGRAM : SonySec07, 
+WHATSAPP : +234 704 345 7087, 
+YOUTUBE : sonymodderr, 
+EMAIL : mrsn9000@gmail.com, 
